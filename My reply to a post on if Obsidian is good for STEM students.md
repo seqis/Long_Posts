@@ -1,4 +1,5 @@
 [My reply to a post on if Obsidian is good for STEM students](https://www.reddit.com/r/ObsidianMD/comments/1fh2sug/is_obsidian_good_for_stem_majors/)
+
 Obsidian could be an excellent tool for you, particularly given your kinesthetic and visual learning style. You’ve mentioned that handwritten notes, diagrams, and color-coding help you understand complex topics but are becoming too time-consuming. Transitioning to Obsidian offers a streamlined approach, allowing you to maintain the connections and visual elements you rely on while reducing the time spent reworking notes.
 
 One of Obsidian’s core strengths is its ability to link concepts in a way that mirrors how topics in STEM subjects often interconnect.
