@@ -47,3 +47,5 @@ As you live your life every day, learn what you can and figure out who you want 
 So, after the philosophy, the Goggins books, the motivational YouTube videos and reddit posts like these, find yourself through your choices. You'll see them every day in the mirror, or not. You still get to decide.
 
 Oh . . . and you’re running out of time.
+
+[Note: This was a lengthy response to a question from this thread
