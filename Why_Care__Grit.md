@@ -48,4 +48,4 @@ So, after the philosophy, the Goggins books, the motivational YouTube videos and
 
 Oh . . . and you’re running out of time.
 
-[Note: This was a lengthy response to a question from this thread
+[Note: This was a lengthy response to a question [from this thread](https://www.reddit.com/r/Existentialism/comments/1frgiiy/comment/lplouxw/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)] 
