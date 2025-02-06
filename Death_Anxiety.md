@@ -138,3 +138,5 @@ I don’t want to find myself sighing and frightened,
 or full of argument.
 
 I don’t want to end up simply having visited this world.
+
+[Note: This was a lengthy response to a question from this thread.](https://www.reddit.com/r/Existentialism/comments/1hhviti/yes_but/)
